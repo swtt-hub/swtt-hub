@@ -1,0 +1,4 @@
+- 👋 Hi, I’m shadyWRLD
+- 👀 I’m interested in Basketball, Money and Technolagy
+- 📫 How to reach me my tiktok at @gshady999wrldg
+- 😄 Pronouns: he, him, his
